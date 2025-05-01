@@ -2,7 +2,7 @@
 
 🌟 MCA Student |NIET Greater Noida | Aspiring Full Stack Developer | Tech Enthusiast
 
-📍 Jharkhand, India
+📍 Jharkhand | Greater Noida, India
 
 
 ## 🌐 Socials:
