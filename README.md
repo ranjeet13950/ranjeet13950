@@ -1,6 +1,6 @@
 ## RANJEET KUMAR👋
 
-🌟 MCA Student |NIET Greater Noida | Aspiring Full Stack Developer | Tech Enthusiast
+🌟 MCA Student |NIET Greater Noida | Aspiring Full Stack Salesforce Developer | Tech Enthusiast
 
 📍 Jharkhand | Greater Noida, India
 
